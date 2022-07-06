@@ -1,2 +1,0 @@
-# Checkpoint
-Martin Acosta 
